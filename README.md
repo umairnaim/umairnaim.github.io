@@ -1,1 +1,1 @@
-owaismnaim.github.io
+owaisnaim.github.io
